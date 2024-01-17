@@ -1,1 +1,1 @@
-Aqui sse encuentran los scripts del año 2324
+Aqui se encuentran los scripts del año 2324
